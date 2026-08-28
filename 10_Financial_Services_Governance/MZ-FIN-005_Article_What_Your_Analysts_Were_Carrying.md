@@ -6,7 +6,7 @@
 
 Georg Zangl · drawn from What the Structure Does Not Carry (2026)
 
-**MZ-FIN-005 v1.0 · 17 August 2026 · approx. 3,000 words**
+**MZ-FIN-005 v1.0 · 28 August 2026 · approx. 3,000 words**
 
 ## A failure nobody disputes
 
